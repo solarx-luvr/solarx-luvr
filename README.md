@@ -1,16 +1,21 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/9eaa0e61-80d1-445d-895e-d3a388a96942)   
+    
+                                   !!  WONDERHOY !!
+︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ 
+HIHIHIH!! Names _Solar!!_ 
+Some ppl call me Sol! Or _Melli!!_ Or some other nicknames releated to my name!!
 
-<!--
-**solarx-luvr/solarx-luvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**check this little** _strawpage_ i made pls!! _Hehehe!!_ DW its really short and lil! I just add _**some stuffs**_ that i dont know how to add here!! >,33
 
-Here are some ideas to get you started:
+    >>>>>           https://readm3laalalal.straw.page                       <<<<<
+                            Click it!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶
+
+But if you doesnt want to **click it!** Thenn .. _check there!!_
+Names: **_Solar_** / _Melli_
+Age: _**13**_-_15_
+From : **_Turkiye_**
+Where you can find me? : **On PT!!** **_Docks , Turk Area (I mostly afk there)_** , Mafia RPs , _My orphanage RP Hostings_ and 4saken RPs!!
+︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶
+![Image](https://github.com/user-attachments/assets/db31797d-aa75-4978-9888-b72a6e3b01ca)
