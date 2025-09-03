@@ -18,8 +18,8 @@ Names: **_Solar_** / _Melli_
 
 Age: _**13**_-_15_
 
-From : **_Turkiye_**
-
 Where you can find me? : **On PT!!** **_Docks , Turk Area (I mostly afk there)_** , Mafia RPs , _My orphanage RP Hostings_ and 4saken RPs!!
-︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶
+                              C + H FREELY!! But ask me first!!
+                      Check my main strawpage for know MORE MORE about me!!
+︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ ︶︶︶︶︶︶ 
 ![Image](https://github.com/user-attachments/assets/db31797d-aa75-4978-9888-b72a6e3b01ca)
