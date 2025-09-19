@@ -19,7 +19,7 @@ Names: **_Solar_** / _Melli_ / **_Aether_**
 
 Age: _**13**_-_15_
 
-Where you can find me? : **On PT!!** **_Docks , Turk Area (I mostly afk there)_** , Mafia RPs , _My orphanage RP Hostings_ and 4saken RPs!!
+Where you can find me? : **On PT!!** **_Docks , Turk Area (I mostly afk there)_** , Mafias , _My orphanage RP Hostings_ and 4saken RPs!!
   
    C + H FREELY!! But ask me first!
 
