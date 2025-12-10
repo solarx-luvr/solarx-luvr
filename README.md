@@ -15,6 +15,6 @@
 ‿◞   ྀི  ﹕_**Lesbian**_, Genderfluid , Demigirl , *Nebularomantic*
 
 
-,  ㅤㅤㅤㅤㅤㅤ ˙ . ꒷ 🍰 . *ok hi to the person who checks my github and big hi to my friends yes ok madoka says BYEE!!!*
+  ㅤㅤㅤㅤㅤㅤ ˙ . ꒷ 🍰 . *ok hi to the person who checks my github and big hi to my friends yes ok madoka says BYEE!!!*
   
 
