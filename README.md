@@ -6,13 +6,13 @@
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          
    ㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    
-‿◞   ྀི  ﹕Names : DARK / NEPTUNE / BUBBLE / MADOKA / JUJU or use my other 14+ names!!
+‿◞   ྀི  ﹕Names : DARK / NEPTUNE / N0ZXY / MADOKA / JUJU or use my other 14+ names!!
 
 ‿◞   ྀི  ﹕**Minor** / *13 y / o* .
 
-‿◞   ྀི  ﹕Pronouns : *Any / She / Him* ( KINDAAAA prefer **he/him** more )
+‿◞   ྀི  ﹕Pronouns : **he/him** 
 
-‿◞   ྀི  ﹕_**Lesbian**_, Genderfluid , Demigirl , *Nebularomantic*
+‿◞   ྀི  ﹕**Lesbian**, _**Transmasculine**_ , Nonbinary , *Nebularomantic*
 
 
   ㅤㅤㅤㅤㅤㅤ ˙ . ꒷ 🍰 . *ok hi to the person who checks my github and big hi to my friends yes ok madoka says BYEE!!!*
