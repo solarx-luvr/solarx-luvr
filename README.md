@@ -10,7 +10,7 @@
 
 ‿◞   ྀི  ﹕**Minor** / *13 y / o* .
 
-‿◞   ྀི  ﹕Pronouns : **he/him** 
+‿◞   ྀི  ﹕Pronouns : **he/him or They/them** 
 
 ‿◞   ྀི  ﹕**Lesbian**, _**Transmasculine**_ , Nonbinary , *Nebularomantic*
 
