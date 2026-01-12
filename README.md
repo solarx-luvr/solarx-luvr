@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/485ff71c-9571-4b66-87d6-da6b881aade8)
+okay chat im rmking EVERYTHING. for the uhh counts fingers .. 8th .. time??? I GUESS.
 
    ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ⩩﹕ [Pronouns.page](https://en.pronouns.page/@solarx.luvr) › [Atabook](https://darkkboommplussolarr.atabook.org/) › [Strawpage ](https://madokasadvanture.straw.page) 🪷˚◞♡
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ⠀ ㅤㅤㅤㅤㅤㅤㅤ             ㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
