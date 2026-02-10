@@ -1,5 +1,5 @@
 
-<img width="2000" height="450" alt="Image" src="https://github.com/user-attachments/assets/55a4da9a-2202-4941-9272-eaf92f8d8f2d" />
+
 
 
    ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ⩩﹕ [Pronouns.page](https://en.pronouns.page/@solarx.luvr) › [Atabook](https://darkkboommplussolarr.atabook.org/) › [Strawpage ](https://madokasadvanture.straw.page) 🎈˚◞♡
