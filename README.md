@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=18&pause=200&color=1ACF0C&center=true&width=435&lines=Even+if+you%E2%80%99re+in+pajamas%2C+rush+to+me!;Compete+against+time+itself+just+to+come!;If+you+were+to+change+into+a+T-shirt%2C;I+may+get+eaten+up+to+my+bones!;(Yes%2C+help+me!)" alt="Typing SVG" /></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=5009&pause=500&color=2FF73B&center=true&width=435&lines=Pretty+boy.;You're+a+devil+with+a+big+grinp!;Harlequin+..;Smiling+as+you+sin%2C;And+baby+I'm+a+clown!;Always+laughing+while+you+hurt+me;And+hold+me+down.;Painting+h%D0%B5arts+along+my+cheeks..!)](https://git.io/typing-svg)
 
 
    ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ⩩﹕ [Pronouns.page](https://en.pronouns.page/@solarx.luvr) › [Atabook](https://ilovemyboyfriendharlequin.atabook.org/?page=1) › [Strawpage ](https://truthslies.straw.page/) 🎈˚◞☆
